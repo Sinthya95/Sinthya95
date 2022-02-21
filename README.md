@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, Im Sinthya 👋:sparkles:
 
 <!--
 **Sinthya95/Sinthya95** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
